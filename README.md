@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @imSGworks
+- 👀 I’m interested in social media
+- 🌱 I’m currently learning video editing for clients
+- 📫 You can contact me here: https://linktr.ee/SG239
